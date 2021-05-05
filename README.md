@@ -4,4 +4,4 @@
 - 🔭 Pronto Online
 - ✨ Crackeado, para no-premiums
 - 🎫 Gratis para todo el mundo
-- 💣 Anárquico: haz lo que quieras
+-🧵  Mapas Divertidos
